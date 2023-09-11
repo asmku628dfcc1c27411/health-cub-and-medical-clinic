@@ -1,1 +1,0 @@
-# health-cub-and-medical-clinic
